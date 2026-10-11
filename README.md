@@ -1,2 +1,2 @@
 # Noura-sBeauty
-fasionhub
+Beauty parlour
